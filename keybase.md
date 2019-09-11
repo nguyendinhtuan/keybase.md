@@ -1,4 +1,3 @@
-cuanh0014
 ### Keybase proof
 
 I hereby claim:
